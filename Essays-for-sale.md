@@ -1,0 +1,15 @@
+# Essays for sale
+Tips how to write an essay
+Each entrant/student will have to write it more than once.
+How does an essay differ from other types of written work?
+In fact, the essay is a small work of free composition, which expresses the personal impressions and thoughts of the author on any occasion or issue. The text may cover philosophical, journalistic, historical, literary, scientific and popular topics.
+What's the point?
+The essay is not in vain used to control knowledge and development because it requires creative thinking and the ability to express their opinions. The work shows how a person distinguishes cause-and-effect relationships, structures information and argues conclusions.
+So how to write it?
+You have only answer one question. It has no strict structure, but it is desirable to express thoughts in the form of brief theses and to support them with arguments (facts, social events, phenomena, your experience, scientific justifications, references to the opinion of authoritative persons). To prove in favor of the thesis was convincing, it is necessary to give two arguments, more "overload" the text.
+In the introduction and conclusion try to focus on the problem: in the first paragraph mark it, and in the last draw a conclusion. To have a coherent essay, try to logically link the fragments together.
+Use the advantages of artistic and journalistic style to the maximum. Do not be afraid to be emotional, expressive, show a sense of humor. So you show your personality. If we are talking about personal qualities or abilities, you can, for example, to answer the question: "How does this distinguish me from others?". Making references to the words of authoritative people, explain why I chose them.
+Try to impress the reader with bright statements, aphorisms. Do not be afraid to argue with yourself, face conflicting statements. Then the text will seem interesting and memorable.
+What should not be done?
+To disregard the rules of the language the text should be written correctly. Clean it not only from spelling and punctuation errors but also from ambiguous expressions, unjustified repetitions, tautologies, unsuccessful speech turns. Try not to use slang, clichés, abbreviations, so that the work is taken seriously by the reader. Do not support claims with examples the essay looks losing if the text only dry facts. Otherwise, reading work will be tedious. No one likes to over-embellish reality. Be honest but positive in your essay. Do not verify facts. Bad impact on the assessment of the composition of the wrong interpretation of data, errors in dates and names. Do not be lazy once again to reconsider everything. Avoid complex syntax. Long phrases are not an indicator of expertise. Do not do the bulky paragraphs. 
+When you finished, ask yourself a few questions: "Did I cover the topic well? and Will my thoughts be clear to the reader?". If everything is in order, then you have coped with the task! If you still have questions <a href="https://essayunion.com/essays-for-sale.html">essays for sale</a> always ready to help you.
